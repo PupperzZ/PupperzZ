@@ -46,6 +46,9 @@
 
 <img width="650" height="140" alt="puppy's github" src="https://64.media.tumblr.com/55901616ac2e1ad071a3e1593008a50a/7e93a3775387e52e-f6/s1280x1920/a445405ebbe58156cbe05c8eaf04647fe92c365d.pnj" />
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&duration=4100&pause=1000&color=812324&width=500&lines=Give+me+envy,+give'+me+malice,+give+me+your+attention!+" alt="Typing SVG" /></a>
+
+
 <div align="center">
  
 ### 𝄞⨾💿✮˚.⋆
