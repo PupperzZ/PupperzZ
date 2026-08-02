@@ -42,6 +42,8 @@
 
 <img width="600" height="140" alt="puppy's github" src="https://64.media.tumblr.com/829cd2861e1da777bed75802ef918027/e8d4d8ff4d45562c-dc/s1280x1920/e693073e5cbe963ce7b468e45ab53ff02cbffd9b.pnj" />
 
+<img width="600" height="140" alt="puppy's github" src="https://i.pinimg.com/1200x/…bdf4fcb4c.jpg" />
+
 <img width="650" height="140" alt="puppy's github" src="https://64.media.tumblr.com/55901616ac2e1ad071a3e1593008a50a/7e93a3775387e52e-f6/s1280x1920/a445405ebbe58156cbe05c8eaf04647fe92c365d.pnj" />
 
 <div align="center">
