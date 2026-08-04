@@ -13,12 +13,15 @@
 <div align="center">
  
 ## 💿 IMPORTANT INFO
-
-- DNI IF = 16 or younger, homophobic, tranzphobic, disrezpectful to the LGBTQ+ community in general, problematic people, darkzhippers.
-- 
 - KEEP NOTE = I have a typing quirk where I replace "S" with "Z". Like thiz! If you need me to tranzlate, feel free to azk me anytimez!
--  
-- EXTRA = Honeztly, TADC fanz dni too, zorry not zorry.
+- CD (Cover dizcomfort) / TD (Touch dizcomfort) unless cloze friend.
+- Minorz IWC (Interact with caution and make zure to read my name before interacting on Pony Town)
+- Do NOT copy my zkinz !!
+- May go ZV or NV (Zemi-verbal or Non-verbal)
+- EXTRA - Britizh , Kemonomimi , furry , critterlike . Nonbinary + Xenoz + tranzmazc .
+
+### 💿 DNI LIST
+- Prozhipperz , darkzhipperz , people who bazh typing quirkz , homophobic , racizt , xenophobic , people who hate on LGBTQ+ in general , problematic people , people who can't rezpect boundariez , Viziepop fanz , problematic fandomz , Zooz , Predz , MAPz , people who zay "yuri" or "yaoi" as replacement for lezbian and gay az "yuri" and "yaoi" are fetizhized termz . 
 
 ##
 
