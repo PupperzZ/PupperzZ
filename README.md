@@ -15,7 +15,7 @@
 ## 💿 IMPORTANT INFO
 - KEEP NOTE = I have a typing quirk where I replace "S" with "Z". Like thiz! If you need me to tranzlate, feel free to azk me anytimez!
 - CD (Cover/Crowd dizcomfort) / TD (Touch dizcomfort) unless cloze friend.
-- Minorz IWC (Interact with caution and make zure to read my name before interacting on Pony Town)
+- Under 16'z DNI. 16-17 IWC (Int with caution). (EVERYPUPPY) Pleaze check my name before interacting az my mood can zhift VERY quickly.
 - Do NOT copy my zkinz !!
 - May go ZV or NV (Zemi-verbal or Non-verbal)
 - I block/hide freely. Don't take it perzonally. I alzo mute regi recruiterz, it'z juzt a little annoying when there'z a million of them.
