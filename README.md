@@ -14,10 +14,11 @@
  
 ## 💿 IMPORTANT INFO
 - KEEP NOTE = I have a typing quirk where I replace "S" with "Z". Like thiz! If you need me to tranzlate, feel free to azk me anytimez!
-- CD (Cover dizcomfort) / TD (Touch dizcomfort) unless cloze friend.
+- CD (Cover/Crowd dizcomfort) / TD (Touch dizcomfort) unless cloze friend.
 - Minorz IWC (Interact with caution and make zure to read my name before interacting on Pony Town)
 - Do NOT copy my zkinz !!
 - May go ZV or NV (Zemi-verbal or Non-verbal)
+- I block/hide freely. Don't take it perzonally. I alzo mute regi recruiterz, it'z juzt a little annoying when there'z a million of them.
 - EXTRA - Britizh , Kemonomimi , furry , critterlike . Nonbinary + Xenoz + tranzmazc .
 
 ### 💿 DNI LIST
