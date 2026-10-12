@@ -15,7 +15,7 @@
 ## 💿 IMPORTANT INFO
 - KEEP NOTE = I have a typing quirk where I replace "S" with "Z". Like thiz! If you need me to tranzlate, feel free to azk me anytimez!
 - CD (Cover/Crowd dizcomfort) / TD (Touch dizcomfort) unless cloze friend.
-- Under 14 DNI/DNIUID (DNI Unlezz I do). 15-17 IWC (Int with caution).
+- Under 15z DNF. I don't mind brief chatz but I will not friend you. Under 13z DNI/DNF. Anypuppy elze iz free to interact! But pleaze azk before trying to friend me.
 - Do NOT copy my zkinz !!
 - May go ZV or NV (Zemi-verbal or Non-verbal)
 - I block/hide freely. Don't take it perzonally. I alzo mute regi recruiterz, it'z juzt a little annoying when there'z a million of them.
