@@ -8,6 +8,8 @@
 
 <h3 align="center">Golden retriever, Saarloos wolfdog, Hyena</h3>
 
+![GitHub Views](https://gitviews.com/user/PupperzZ.svg?style=plastic&label=Puppies&label-color=orange&color=white)
+
 ## <h2 align="center">🦴 About me! </h2>
 
 <img align="right" src="https://i.pinimg.com/1200x/b1/50/73/b15073f9a24a9515ecafd430c9030eba.jpg" width="300" />
